@@ -19,4 +19,4 @@
 
 ## 源码和使用方法
 如果想使用源码和教程，可以点击下方链接购买学习
-[课程教学链接](https://www.shenyecg.com/Home/TrainingCampdetail?courseId=809&TG=67415)
+[课程教学链接](https://xoeff.xetlk.com/s/2YcLNo)
